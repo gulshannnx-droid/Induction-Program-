@@ -48,6 +48,10 @@ Teaches the meanings of meditation
 Like what you see after closing your eye and what u hear after closing your ears.
  Discussed about vibration.Then they do experiment on vibration.
 
+## 🎤 Chief Guest: Gurcharan Singh Grewal (11:30 AM)
+- Shared insights on values and responsibilities as a student.
+- Highlighted the importance of ethics in academics and daily life. 
+
  At 11.30
 
 Priya darshani mam
